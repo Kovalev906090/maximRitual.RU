@@ -1,0 +1,1 @@
+# maximRitual.RU
